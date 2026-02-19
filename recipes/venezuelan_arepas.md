@@ -29,4 +29,4 @@ They can be filled with dozens of things, and each presentation has a particular
 7. Put the arepas in the preheated pan and wait for it approximately 2 minutes and a half to flip it over.
 8. When both sides are cooked, take them out of the pan.
 9. Cut through the middle of the arepas with a butter knife, and brush them with butter.
-10. Fill them with protein to taste (ham, cheese, beans, mortadella, eggs, etc.)
+10. Fill them with protein to taste (vegetables)
