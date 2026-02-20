@@ -1,5 +1,5 @@
 Twice baked potatoes
-https://smittenkitchen.com/2014/12/twice-baked-potatoes-with-kale/
+copied from Smitten kitchen https://smittenkitchen.com/2014/12/twice-baked-potatoes-with-kale/
 
 Serves 6 as a side; 3 as a hearty main
 
